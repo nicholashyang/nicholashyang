@@ -1,6 +1,8 @@
 A PhD student in hep-ph.
 
-An ex-student in math and hep-th.
+A MSc in Theoretical Physics.
+
+A BSc in Mathematics.
 
 Wide interests in: 
 - Geometry and Topology in physics
