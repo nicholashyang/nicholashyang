@@ -1,4 +1,4 @@
-A PhD student in hep-ph.
+A PhD student in High-Energy Physics.
 
 A MSc in Theoretical Physics.
 
